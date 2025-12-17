@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **anything on your mind**
 
-- 📫 You can reach me at **mohamedaminefezzani@gmail.com**
+- 📫 You can reach me at **mohamedaminefezzani.de@gmail.com**
 
 - ⚡ Fun fact: **Bananas without "B" is pineapple!**
 
